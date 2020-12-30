@@ -5,4 +5,4 @@
 https://dacon.io/competitions/open/235536/overview/
 
 결과 6등(oui._.inhyeok)
-2020년 11월
+2020년 11월 
